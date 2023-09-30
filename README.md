@@ -1,5 +1,1 @@
-# introduction-to-git-learnatfligno
-
-Aldrin Mae Y. Pabalolot
-
-For stash ni sya.
+Aldrin Mae Y. Pabalolot - Computer Engineering
