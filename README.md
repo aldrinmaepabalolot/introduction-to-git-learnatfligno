@@ -1,1 +1,1 @@
-Learn@Fligno
+Aldrin Mae Y. Pabalolot - Computer Engineering
